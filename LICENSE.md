@@ -1,4 +1,4 @@
-# 
+# rare Affinity Photo para PC executor é o melhor Affinity Photo para PC executor com fluxo de trabalho baseado em nós e ferramentas de tipografia. Seguro, confiável e otimizado
 
 
 
